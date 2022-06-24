@@ -1,1 +1,1 @@
-iam betty
+Ozoya is black
